@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Saiba um pouco sobre mim
 Olá Mundo! 👋 Meu nome é Luciana Freitag.<br><br>💡 Estudo programação. <br>🧠 Estou recentemente aprendendo os primeiros passos de programação com a grande oportunidade de fazer parte do Programa One — Oracle Next Grupo 8/ Alura. Confesso que esta jornada esta sendo bastante desafiadora, ao ser um mundo ainda pouco compreendido por mim.<br>🤝 Estou buscando colaborar com pessoas que gostam de trabalhar em equipe. Me interessa colaborar com projetos relacionados a educação, saúde e bem-estar.<br>🚀Busco ajuda na minha aprendizagem em programação.<br>🌍 Transito entre Rio x Santos.<br>🖥️ No momento sem portifólio, mas aguarde...<br>✉️ Entre em contato comigo em: lufreitag.nutricao@gmail.com<br>✨Eu sou secretamente uma borboleta… Mas não conta para ninguém!<br><br><br>
 
 
